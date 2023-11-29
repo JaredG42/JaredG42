@@ -8,4 +8,4 @@
  
 <h2> 🤳 Connect with me:</h2>
 
-[Linkedin](https://www.linkedin.com/in/jared-gummow-3a117787/), [Instagram](https://www.instagram.com/jared57206/)
+[Linkedin](https://www.linkedin.com/in/jared-g-3a117787/), [Instagram](https://www.instagram.com/jared57206/)
